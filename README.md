@@ -8,5 +8,5 @@ Demand increasing is the top priority for fashion brands have a clear advantage 
 
 Recommendation engines provide online business with the opportunity to have such interactions with your customers throughout their shopping journey. First-time customers will feel better served if they’re greeted with your hot sellers and most valued items on your landing pages, receive email newsletters with personalized deals, and have the accessories for their main purchase a mere mouse-click away during checkout.
 
-Recommendation engines brings the positivity which reviewers are looking for.
+Recommendation engines brings the positivity for  reviewers and fostering sales growth for Brands in Textile,Leatherindustry etc...
 
